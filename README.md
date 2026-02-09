@@ -1,4 +1,4 @@
-# ponytown-info
+# ponytown info
 ~~~
 idk how the hell to code and this is just for ponytown info anyway. whatevs
 ~~~
