@@ -12,10 +12,11 @@ im dry when i talk sometimes but i dont do it on purpose!! if im not adding much
 
 speaking of i LOOVE making friends !! i dont bite i promise
 
-*DO NOT. STEAL OR COPY MY SKINS UNLESS I HAVE GIVEN PERMISSION. it will likely be a no unless i know you. you are, however, allowed to take inspiration from my cosplays and ocs (again, as long as you don't 100% copy them :,|)*
 
 **DNI**
 
 transphobes, homophobes, zoos, pedos, maga or right-wing people in general, ICE bootlickers, TERFs, nazis, etc. you get the jist
 
 also dni if you ship opbee, stridercest, jetcest,, incest and/or stepcest in generaall........
+
+`*DO NOT. STEAL OR COPY MY SKINS UNLESS I HAVE GIVEN PERMISSION. it will likely be a no unless i know you. you are, however, allowed to take inspiration from my cosplays and ocs (again, as long as you don't 100% copy them :,|)*`
