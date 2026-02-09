@@ -1,8 +1,4 @@
-# ponytown info
-~~~
-idk how the hell to code and this is just for ponytown info anyway. whatevs
-~~~
----
+![b9d58fe8ee323fd2b0e554c577cee6f8](https://github.com/user-attachments/assets/c5a54cc5-43d8-4655-b9cc-015f36d42b3c)
 **INTERACTING**
 
 sending me a whisper is the best way to get my attention! i tend to be off tab if im not talking with friends. i usually hang out at docks in pg and very rarely in the transformers area
@@ -17,8 +13,8 @@ i LOOVE making friends !! i dont bite i promise
 ---
 **DNI**
 
-transphobes, homophobes, zoos, pedos, maga or right-wing people in general, TERFs, nazis, etc. you get the jist
+transphobes, homophobes, zoos, pedos, maga or right-wing people in general, ICE bootlickers, TERFs, nazis, etc. you get the jist
 
-also dni if you ship stridercest, jetcest, optibee,, incest and/or stepcest in generaall........
+also dni if you ship opbee, stridercest, jetcest,, incest and/or stepcest in generaall........
 
 if we never interact at all and i hide and/or block you, i probably saw you doing something i js didnt agree with
